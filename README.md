@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KieranK-LCWC
+- 👀 I’m interested in Football
+- 🌱 I’m currently learning Digital and IT Skills
+- 💞️ I’m looking to collaborate on work
+- 📫 How to reach me 30072357@lcwc.ac.uk
